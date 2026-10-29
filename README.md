@@ -58,10 +58,10 @@ The main dashboard includes:
 ---
 
 ## 🙋‍♀️ Created By  
-**Kamatham Sneha**  
+**MUDRAGADA PARINITHA DEVI**  
 📍 B.Tech Final Year | Data Analytics Intern  
-🔗 LinkedIn: https://www.linkedin.com/in/kamatham-sneha-51251630b/  
-📧 Email: kamathamsneha27@gmail.com
+🔗 LinkedIn:www.linkedin.com/in/parinitha-mudragada-6322a230a
+📧 Email: parinitha42006@gmail.com
 
 ---
 
